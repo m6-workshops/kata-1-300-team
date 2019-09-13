@@ -1,0 +1,2 @@
+- C'est un pirate car il a un oeil de verre et une jambe de bois et quand il marche il fait *tic tac toc*.
+- 
