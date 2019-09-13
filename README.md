@@ -6,3 +6,7 @@ Ce bruit résonne en amérique, plus précisement au USA, à Hawaï !
 Il découvre un petit bouiboui en forme de pizzananas, il y achète une pizza, .... à l'ananas, il rend à la terre ce qui appartenait aux italiens et ananassiens, trop de piment.
 *tic tac toc tic tac toc*
 Il retourne voir le pizzananatier, lui volant son extincteur pour se refaire le palais.
+
+Il dû finir son tour du monde car son commandant lui envoya un email lui demandant de revenir.
+En effet ce dernier utilisait fréquemment une boule de cristal pour rechercher des trésors.
+Il avait découvert une plante miraculeuse qui pouvait sauver sa fille.
